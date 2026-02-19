@@ -7,9 +7,9 @@ We’re here to help.
 
 ## 📧 Contact Support
 
-If you are experiencing issues or have questions, please go to settings and view the privacy policy to view our contact information.
+If you are experiencing issues or have questions, please contact us at:
 
-We aim to respond within 24–48 hours.
+**mirroratechnologies@gmail.com**
 
 ---
 
